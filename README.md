@@ -1,0 +1,1 @@
+# estudodirigido004-garantia-equipamentos
